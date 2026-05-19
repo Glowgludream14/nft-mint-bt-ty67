@@ -1,4 +1,4 @@
-# 
+# professional bot de negociação NFT ferramentas é o melhor bot de negociação NFT ferramentas com stop-loss e modo simulação. Seguro, confiável e otimizado para estratégias de
 
 
 
